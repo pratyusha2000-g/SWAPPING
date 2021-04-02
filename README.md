@@ -1,2 +1,0 @@
-# SWAPPING
-Developed by Pratyusha
